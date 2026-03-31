@@ -1,1 +1,0 @@
-# Tugas-4-pengembangan-ai-tanpa-koding
